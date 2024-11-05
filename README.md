@@ -1,5 +1,5 @@
 ## Hi there 👋
-##I'm a student at ESEO in Angers
+I'm a student at ESEO in Angers
 
 Welcome on my profile !
 
